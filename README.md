@@ -1,0 +1,1 @@
+# friescoin.github.io
